@@ -53,7 +53,9 @@ Organizer and Chair, “Horror in Tragedy / Tragedy in Horror,” Northeast Mode
 
 ## Languages
 
-English, Italian, French, Ancient Greek, Spanish
+Established proficiency (reading, writing, speaking): English, Italian, French
+
+Ongoing study (reading only): Ancient Greek, Spanish, Japanese
 
 ## Professional Memberships
 
