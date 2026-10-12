@@ -1,0 +1,5 @@
+title: "Erasmia Gorla Raphael"
+markdown: kramdown
+theme: null
+exclude:
+  - README.md
