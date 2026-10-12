@@ -19,7 +19,7 @@ This dissertation advances the concept of necrospectacle to describe how tragedy
 ## Awards and Fellowships
 
 Dissertation Year Fellowship, The Graduate Center, CUNY (2026–27)  
-Doctoral Tuition Fellowship, The Graduate Center, CUNY (2020–2026)  
+Doctoral Tuition Fellowship, The Graduate Center, CUNY (2020–26)  
 Bear Pin Award, Barnard College, Columbia University (2016)  
 Millicent McIntosh Award, Barnard College, Columbia University (2015)
 
@@ -36,17 +36,16 @@ Millicent McIntosh Award, Barnard College, Columbia University (2015)
 **English Teacher, HERO High School (2016–2024)**
 
 - Designed and taught college-ready English courses for eleventh-grade (2022–24) and ninth-grade (2016–2022) students.
-- Received Highly Effective teacher ratings (2018–2024).
 - Served as English Department Chair (2022–24), Model Teacher (2021–24), and Grade Team Lead (2021-24).
 - Directed the school’s annual Shakespeare Festival (2016–2022).
 
 ## Conference Papers
 
-“The Body in Pieces in Shakespeare’s *Titus Andronicus*.” Paper in panel “The Dismembered Body in the Early Modern World,” Renaissance Association of America, forthcoming March 2027.
+“The Body in Pieces in Shakespeare’s *Titus Andronicus*.” Paper in session “The Dismembered Body in the Early Modern World,” Renaissance Association of America, forthcoming March 2027.
 
-“From Ritual to Revenge: Maternal Grief-Work in Euripides’ *Suppliants* and *Hecuba*.” Paper in panel “Female Grief in Literature and the Arts,” Northeast Modern Language Association, forthcoming March 2027.
+“From Ritual to Revenge: Maternal Grief-Work in Euripides’ *Suppliants* and *Hecuba*.” Paper in session “Female Grief in Literature and the Arts,” Northeast Modern Language Association, forthcoming March 2027.
 
-“Necrospectacle Across the Tragedy-Horror Continuum.” Paper in panel “Horror in Tragedy / Tragedy in Horror,” Northeast Modern Language Association, forthcoming March 2027.
+“Necrospectacle Across the Tragedy-Horror Continuum.” Opening remarks for session “Horror in Tragedy / Tragedy in Horror,” Northeast Modern Language Association, forthcoming March 2027.
 
 ## Conference Service
 
