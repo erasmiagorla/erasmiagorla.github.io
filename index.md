@@ -45,7 +45,7 @@ Millicent McIntosh Award, Barnard College, Columbia University (2015)
 
 “From Ritual to Revenge: Maternal Grief-Work in Euripides’ *Suppliants* and *Hecuba*.” Paper in session “Female Grief in Literature and the Arts,” Northeast Modern Language Association, forthcoming March 2027.
 
-“Necrospectacle Across the Tragedy-Horror Continuum.” Opening remarks for session “Horror in Tragedy / Tragedy in Horror,” Northeast Modern Language Association, forthcoming March 2027.
+“Necrospectacle Across the Tragedy-Horror Continuum.” Paper in session “Horror in Tragedy / Tragedy in Horror,” Northeast Modern Language Association, forthcoming March 2027.
 
 ## Conference Service
 
