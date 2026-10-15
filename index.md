@@ -51,6 +51,15 @@ Millicent McIntosh Award, Barnard College, Columbia University (2015)
 
 Organizer and Chair, “Horror in Tragedy / Tragedy in Horror,” Northeast Modern Language Association, forthcoming March 2027.
 
+## Publishing Experience
+
+**Editor, New Village Press (2014–2016)**
+
+- Performed developmental, structural, and line editing for major publications. 
+- Conducted author interviews and integrated new material into the published work.
+- Contributed to all stages of book production, including marketing, publicity, author relations, cover design, and publishing operations.
+
+
 ## Languages
 
 English, Italian, French, Spanish, Ancient Greek
