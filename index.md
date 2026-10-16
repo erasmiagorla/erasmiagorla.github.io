@@ -56,7 +56,7 @@ Organizer and Chair, “Horror in Tragedy / Tragedy in Horror,” Northeast Mode
 **Editor, New Village Press (2014–2016)**
 
 - Performed developmental, structural, and line editing for major publications. 
-- Conducted author interviews and integrated new material into the published work.
+- Researched funding opportunities and wrote grant proposals to support the nonprofit press. 
 - Contributed to all stages of book production, including marketing, publicity, author relations, cover design, and publishing operations.
 
 
