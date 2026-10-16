@@ -6,7 +6,7 @@ title: Curriculum Vitae
 ## Education
 
 Ph.D. in Comparative Literature, The Graduate Center, CUNY (in progress)  
-M.Phil in Comparative Literature, The Graduate Center, CUNY (2025) \
+M.Phil. in Comparative Literature, The Graduate Center, CUNY (2025) \
 M.S.Ed. in English Education, Lehman College, CUNY (2018)  
 B.A. in Comparative Literature, Barnard College, Columbia University, *cum laude* (2016)
 
