@@ -52,15 +52,15 @@ English, Italian, French, Spanish, Ancient Greek
 **English Teacher, HERO High School (2016–2024)**
 
 - Designed and taught college-ready English courses for eleventh-grade (2022–24) and ninth-grade (2016–2022) students.
-- Served as English Department Chair (2022–24), Model Teacher (2021–24), Grade Team Lead (2021-24), and student Advisor (2016–2020).
+- Served as English Department Chair (2022–24), Model Teacher (2021–24), Grade Team Lead (2021–24), and student Advisor (2016–2020).
 - Directed the school’s annual Shakespeare Festival (2016–2022).
-- Designed and taught a Feminist Literature elective course for eleventh- and twelfth-grade students (2018-19).
+- Designed and taught a Feminist Literature elective course for eleventh- and twelfth-grade students (2018–19).
 
-**Tutor, Bronx Hope, Passages Academy (2014-2016)**
+**Tutor, Bronx Hope, Passages Academy (2014–2016)**
 
 - Designed and led academic instruction for students in juvenile detention.
 
-**Program Coordinator and Group Facilitator, FemSex, Columbia University (2014-2016)**
+**Program Coordinator and Group Facilitator, FemSex, Columbia University (2014–2016)**
 
 - Designed curricula for and led semester-long extracurricular seminars exploring identity.
 - Interviewed, selected, and trained seminar facilitators.
@@ -73,7 +73,7 @@ English, Italian, French, Spanish, Ancient Greek
 - Researched funding opportunities and wrote grant proposals. 
 - Contributed to all stages of book production, including marketing, publicity, author relations, cover design, and publishing operations.
 
-**Survivor Advocate, Columbia University Sexual Violence Response (2012-2016)**
+**Survivor Advocate, Columbia University Sexual Violence Response (2012–2016)**
 
 - Provided in-person and phone counseling for survivors of sexual violence on campus via the Columbia University Rape Crisis Center, and online counseling for survivors around the country via RAINN, the National Sexual Assault Hotline.
 - Led consent education workshops for incoming students.
