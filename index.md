@@ -38,6 +38,11 @@ Millicent McIntosh Award, Barnard College, Columbia University (2015)
 - Designed and taught college-ready English courses for eleventh-grade (2022–24) and ninth-grade (2016–2022) students.
 - Served as English Department Chair (2022–24), Model Teacher (2021–24), and Grade Team Lead (2021-24).
 - Directed the school’s annual Shakespeare Festival (2016–2022).
+- Designed and taught a Feminist Literature elective course for eleventh- and twelfth-grade students.
+
+**Tutor, Bronx Hope, Passages Academy (2014-2016)**
+
+- Designed and led academic instruction for students in juvenile detention.
 
 ## Conference Papers
 
@@ -51,13 +56,28 @@ Millicent McIntosh Award, Barnard College, Columbia University (2015)
 
 Organizer and Chair, “Horror in Tragedy / Tragedy in Horror,” Northeast Modern Language Association, forthcoming March 2027.
 
-## Publishing Experience
+## Other Experience
 
 **Editor, New Village Press (2014–2016)**
 
 - Performed developmental, structural, and line editing for manuscripts. 
 - Researched funding opportunities and wrote grant proposals. 
 - Contributed to all stages of book production, including marketing, publicity, author relations, cover design, and publishing operations.
+
+**Survivor Advocate, Columbia University Sexual Violence Response (2012-2016)**
+
+- Provided in-person and phone counseling for survivors of sexual violence on campus.
+- Led consent education workshops for incoming students.
+- Helped to develop the university’s Sexual Assault Prevention and Response program.
+- Provided online crisis intervention for survivors of sexual violence around the country via RAINN, the National Sexual Assault Hotline.
+
+**Program Coordinator and Group Facilitator, FemSex, Columbia University (2014-2016)**
+- Designed curricula for and led semester—long extracurricular seminars exploring identity.
+- Interviewed, selected, and trained seminar facilitators.
+
+**Research Assistant, Columbia University Students for Human Rights (2013)**
+
+- Conducted interviews with members of the Biloxi-Chitimacha-Choctaw tribe on Isle de Jean Charles, Louisiana, contracted by Chief Albert Naquin.
 
 
 ## Languages
