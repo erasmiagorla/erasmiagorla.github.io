@@ -50,14 +50,14 @@ Reading only: Spanish, Ancient Greek
 
 - Designed and taught a Foundational Writing course to first-year college students.
 
-**English Teacher, HERO High School (2016–2024)**
+**English Teacher, HERO High School, NYC Department of Education (2016–2024)**
 
 - Designed and taught college-ready English courses for eleventh-grade (2022–24) and ninth-grade (2016–2022) students.
 - Served as English Department Chair (2022–24), Model Teacher (2021–24), Grade Team Lead (2021–24), and student Advisor (2016–2020).
 - Directed the school’s annual Shakespeare Festival (2016–2022).
 - Designed and taught a Feminist Literature elective course for eleventh- and twelfth-grade students (2018–19).
 
-**Tutor, Bronx Hope, Passages Academy (2014–2016)**
+**Tutor, Bronx Hope – Passages Academy, NYC Department of Education (2014–2016)**
 
 - Designed and led academic instruction for students in juvenile detention.
 
