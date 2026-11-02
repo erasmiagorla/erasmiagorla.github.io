@@ -14,7 +14,8 @@ B.A. in Comparative Literature, Barnard College, Columbia University, *cum laude
 
 *Unburied: Necrospectacle Across a Tragedy-Horror Continuum*
 
-This dissertation advances the concept of necrospectacle to describe how tragedy and horror function as aesthetic death rituals that mediate encounters between audiences and the dead. Moving across a genre continuum that spans Classical Athenian tragedy, Japanese Nō theater, Early Modern English drama, and modern transnational horror film, the dissertation argues that tragedy and horror transform the unburied dead into objects of communal contemplation, allowing spectators to linger at the unstable boundaries of the self and confront the otherwise unassimilable knowledge of mortality.
+This dissertation advances the concept of necrospectacle to describe how tragedy and horror function as aesthetic death rituals that mediate encounters between audiences and the dead. Moving across a genre continuum that spans Classical Athenian tragedy, Japanese Nō theater, Early Modern English drama, and modern transnational horror film, the dissertation argues that tragedy and horror transform the unburied dead into objects of communal contemplation. Using close reading, performance analysis, and historically grounded study of funerary practice,
+visual culture, and religious thought, I investigate how various performance traditions shape spectators’ relationships to mortality and negotiate the competing and at times overlapping impulses to objectify, identify with, and recognize those who have died.
 
 ## Awards and Fellowships
 
